@@ -1,1 +1,1 @@
-# Mana-o-Rentals
+# Mana'o Rentals
